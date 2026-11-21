@@ -1,11 +1,19 @@
-oh, you found this.
+# introduction or smth i think
 
-nice.
+*An incomplete record of things that do not belong together.*
 
-i was going to leave something important here, but apparently i have the memory of a goldfish.
+Perhaps there never was a beginning here.
 
-anyway, apparently this is important:
+A beginning may not be where you expect.
 
-WKHUH LV PRUH WR WKLV WKDQ PHHWV WKH HBH
+Somewhere, the answer has already been written.
 
-no idea what that means. probably just slept on my keyboard. im sure its not a cipher. 
+Time does not erase everything.
+
+
+You are looking at a record. Not necessarily of what happened. But of what remains. If you wish to understand what came before, look where the **past** is preserved.
+
+
+**Four statements. One direction.**
+
+Do not assume that everything you read is meant for you. 
